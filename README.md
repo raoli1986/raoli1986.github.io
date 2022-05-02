@@ -1,5 +1,5 @@
 
-__小火箭免费ID密码每天更新  [点击](https://github.com/raoli1986/Free-ID "悬停显示")__
+__小火箭共享ID密码每天更新  [点击](https://github.com/raoli1986/Free-ID "悬停显示")__
 
 
 
