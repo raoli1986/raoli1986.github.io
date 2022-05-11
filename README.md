@@ -17,7 +17,7 @@
 ## __免费Steam-ID密码定期更新  [点击](https://github.com/raoli1986/Steam-ID "悬停显示")__
 
 
-## __以上所有帐号都隐藏在我的油管视频里面  [点击](https://www.youtube.com/channel/UCXPSzwcs0pspPTAI2rcaBgQ "悬停显示")__
+## __更多免费分享请关注我的YouTube频道  [点击](https://www.youtube.com/channel/UCXPSzwcs0pspPTAI2rcaBgQ "悬停显示")__
 
 
 -
