@@ -8,7 +8,7 @@
 ## __免费Disney+ ID密码定期更新  [点击](https://github.com/raoli1986/Disney-Plus-ID "悬停显示")__
 
 
-## __免费高靖影视APP和网站  [点击](https://github.com/raoli1986/Free-Movie "悬停显示")__
+## __免费高清影视APP和网站  [点击](https://github.com/raoli1986/Free-Movie "悬停显示")__
 
 
 ## __Pornhub-ID密码定期更新  [点击](https://github.com/raoli1986/Pornhub-ID "悬停显示")__
